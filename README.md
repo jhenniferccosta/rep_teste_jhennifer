@@ -9,3 +9,6 @@ Na-na-na-na-na-gnarly (gnarly)
 Na-na-na-na-na-gnarly
 I'm the shit, I'm the shit
 Na-na-na-na-na-gnarly (gnarly)
+Na-na-na-na-na-gnarly (gnarly)
+I'm making beats for boring dum b1tch
+Fcking gnarly don't talk to me
